@@ -1,1 +1,1 @@
-# versidive.my.id
+a beginner trying new things
